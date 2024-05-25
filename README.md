@@ -1,1 +1,1 @@
-# Ling
+# Scarlett Cosmetics
